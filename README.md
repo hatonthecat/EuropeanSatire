@@ -1,4 +1,4 @@
-# EuropeanSatire
+# European Satire
 A History of [Satirical](https://en.wikipedia.org/wiki/List_of_satirical_magazines
 ) Journals and Works Prior to 1900 
 
