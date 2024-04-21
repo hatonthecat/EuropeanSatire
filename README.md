@@ -12,6 +12,9 @@ https://babel.hathitrust.org/cgi/pt?id=chi.098531574&seq=178
 
 https://books.google.com/books?id=YXNO_Jc1eb0C&pg=PA3#v=onepage&q&f=false
 
+![image](https://github.com/hatonthecat/EuropeanSatire/assets/76194453/9b675dba-c581-4eec-9eec-94c977dd1eed)
+
+
 British Empire
 --
 
