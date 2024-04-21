@@ -2,6 +2,16 @@
 A History of [Satirical](https://en.wikipedia.org/wiki/List_of_satirical_magazines
 ) Journals and Works Prior to 1900 
 
+![image](https://github.com/hatonthecat/EuropeanSatire/assets/76194453/0b465224-6e22-45c1-a39c-e9f3bc8785dc)
+
+![image](https://github.com/hatonthecat/EuropeanSatire/assets/76194453/2053716b-456d-40b6-8e3f-6b64ee69fb21)
+
+Dalling and Bulwer, Henry Lytton Bulwer, Baron, 1801-1872: France, social, literary, political (Bentley, 1834) (page images at HathiTrust):
+
+https://babel.hathitrust.org/cgi/pt?id=chi.098531574&seq=178
+
+https://books.google.com/books?id=YXNO_Jc1eb0C&pg=PA3#v=onepage&q&f=false
+
 British Empire
 --
 
